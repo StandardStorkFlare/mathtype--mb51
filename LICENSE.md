@@ -1,4 +1,4 @@
-# 
+# new MathType for PC | MathType for Windows Script | matrix-operations + publication-quality-graphics is the best MathType for PC | MathType for Windows script, featuring
 
 
 
